@@ -3,7 +3,7 @@
 - 🌱 I’m interested in learning new technologies and tech related stuff
 - 💞️ I’m looking to collaborate with giant techies to showcase my skills
 - 📫 you can reach me on linkedin-https://www.linkedin.com/feed/ and github
-- 😄 A high skilled person with good knowledge
+- 😄 A highly skilled person with good knowledge
 
 
 <!---
